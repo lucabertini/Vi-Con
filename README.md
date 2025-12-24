@@ -1,2 +1,4 @@
 # Vi-Con
-two virusers in love (2004 art project)
+lucabertini.com/vi-con
+
+Two virusers in love (2004 art project)
